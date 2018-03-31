@@ -1,1 +1,0 @@
-# ValentinKajdan.github.io
